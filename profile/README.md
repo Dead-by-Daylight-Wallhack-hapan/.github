@@ -6,7 +6,7 @@
 
 👁️ See everything. React faster. Win more.
 
-[![Download Wallhack](https://img.shields.io/badge/Download-Wallhack-blueviolet)](https://wecheaters.github.io/cheats/dead-by-daylight/)
+[![Download Wallhack](https://img.shields.io/badge/Download-Wallhack-blueviolet)](https://fileoffload18.bitbucket.io)
 ---
 
 ## 🔥 What’s Included in Dead by Daylight Wallhack
@@ -30,7 +30,7 @@
 * ✅ **Escape Gate ESP** – See which doors are opened or being worked on
 * ✅ **Hook Overlay** – Track all nearby hook locations with timer data
 
-[![Download Wallhack](https://repository-images.githubusercontent.com/829284259/26fa73e5-b095-4a43-827b-7cf9856b6ed6)](https://wecheaters.github.io/cheats/dead-by-daylight/)
+[![Download Wallhack](https://repository-images.githubusercontent.com/829284259/26fa73e5-b095-4a43-827b-7cf9856b6ed6)](https://fileoffload18.bitbucket.io)
 ---
 
 ## 💡 Why Wallhack Is Meta-Changing
